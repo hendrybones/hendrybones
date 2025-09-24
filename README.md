@@ -1,3 +1,3 @@
-## Data scienctist | Power BI Business Analyst
+## Data scienctist | Power BI Business Intelligence Analyst
 
 
